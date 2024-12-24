@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Muthulakshmikuthalam
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning college
+- 🌱 I’m currently studying college
 
 
 <!---
